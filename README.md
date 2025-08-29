@@ -58,5 +58,5 @@ Caso queira conversar sobre o projeto ou oportunidades na área, estou à dispos
 
 *Contato:*
 
-- LinkedIn: https://www.linkedin.com/in/yasmin-danielle
+- LinkedIn: https://www.linkedin.com/in/yasmin-danielle-melo
 - E-mail: yasmindanielle.tech@gmail.com
